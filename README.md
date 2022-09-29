@@ -1,6 +1,7 @@
-# big text
+# Yo dayo~ dweeb-san here
 
-###### SMALL TEXT
+## 🅱️lieve it or not 🅱️ut noone reads these,
+### Ya'll ready know what boutta happpen 🅱️
 
 ⠄⠄⠄⢰⣧⣼⣯⠄⣸⣠⣶⣶⣦⣾⠄⠄⠄⠄⡀⠄⢀⣿⣿⠄⠄⠄⢸⡇⠄⠄  
 ⠄⠄⠄⣾⣿⠿⠿⠶⠿⢿⣿⣿⣿⣿⣦⣤⣄⢀⡅⢠⣾⣛⡉⠄⠄⠄⠸⢀⣿⠄  
@@ -16,7 +17,26 @@
 ⠄⠄⠈⠻⣿⣿⣿⣿⣿⣿⡄⢻⣿⣿⣿⠄⣿⣿⡀⣾⣿⣿⣿⣿⣛⠛⠁⠄⠄⠄  
 ⠄⠄⠄⠄⠈⠛⢿⣿⣿⣿⠁⠞⢿⣿⣿⡄⢿⣿⡇⣸⣿⣿⠿⠛⠁⠄⠄⠄⠄⠄  
 ⠄⠄⠄⠄⠄⠄⠄⠉⠻⣿⣿⣾⣦⡙⠻⣷⣾⣿⠃⠿⠋⠁⠄⠄⠄⠄⠄⢀⣠⣴  
-⣿⣿⣿⣶⣶⣮⣥⣒⠲⢮⣝⡿⣿⣿⡆⣿⡿⠃⠄⠄⠄⠄⠄⠄⠄⣠⣴⣿⣿⣿
+⣿⣿⣿⣶⣶⣮⣥⣒⠲⢮⣝⡿⣿⣿⡆⣿⡿⠃⠄⠄⠄⠄⠄⠄⠄⣠⣴⣿⣿⣿  
+  
+  
+
+## Diagram 1 (How a dating sim made in a slave trainer engine from a couple decades ago influenced who my fave 2hu is)
+![UML Flow](pics/ReasonWhyNueIsBestGirl%2357.png)  
+The image speaks for itself really.  
+  
+
+## Diagram 2 (I swear I don't have a thing for playing psychologist)
+![UML Flow](pics/SeijaTrueLove_Conf1.png)  
+![UML Flow](pics/SeijaTrueLove_Conf2.png)  
+Kusogaki got love correction.  
+  
+
+## Diagram 3 (Rebound do be crazy)
+![UML Flow](pics/AkYou_Conf1.png)  
+![UML Flow](pics/AkYou_Conf2.png)  
+![UML Flow](pics/akyuu2.png)  
+jkjk haha... but actually 😳
 
 <!--
 **TimothyTaboada/TimothyTaboada** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
