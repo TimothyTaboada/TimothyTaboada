@@ -37,16 +37,7 @@ Kusogaki got love correction.
 ![UML Flow](pics/AkYou_Conf2.png)  
 ![UML Flow](pics/akyuu2.png)  
 jkjk haha...  
-  
-  
-  
-  
-  
-  
-  
-  
-  
-  
+<br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
 but actually 😳
 
 <!--
