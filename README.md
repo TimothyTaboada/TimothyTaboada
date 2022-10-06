@@ -38,14 +38,14 @@ Kusogaki got love correction.
 ![UML Flow](pics/akyuu2.png)  
 jkjk haha...  
 <br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br><br>
-![UML Flow](pics/kd%20(1).png)
 ![UML Flow](pics/kd%20(2).png)  
 ![UML Flow](pics/kd%20(3).png)  
 ![UML Flow](pics/kd%20(4).png)  
 ![UML Flow](pics/kd%20(5).png)  
 ![UML Flow](pics/kd%20(6).png)
 ![UML Flow](pics/kd%20(7).png)  
-![UML Flow](pics/kd%20(8).png)    
+![UML Flow](pics/kd%20(8).png)  
+![UML Flow](pics/kd%20(1).png)  
 but actually 😳
 
 <!--
