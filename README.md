@@ -22,13 +22,13 @@
   
 
 ## Exhibit 1 (How a dating sim made in a slave trainer engine from a couple decades ago influenced who my fave 2hu is)
-![UML Flow](pics/ReasonWhyNueIsBestGirl%2357.png)  
+![Nue Makes My Nuenis Act Up](pics/ReasonWhyNueIsBestGirl%2357.png)  
 The image speaks for itself really.  
   
 
 ## Exhibit 2 (I swear I don't have a thing for playing psychologist)
-![UML Flow](pics/SeijaTrueLove_Conf1.png)  
-![UML Flow](pics/SeijaTrueLove_Conf2.png)  
+![Kusogaki Love](pics/SeijaTrueLove_Conf1.png)  
+![Kinda Fucked The First Half But We Take those](pics/SeijaTrueLove_Conf2.png)  
 Kusogaki got love correction.  
   
 
